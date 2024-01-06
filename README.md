@@ -1,0 +1,1 @@
+[Presentation is here](https://ztranche.com/cross_hedging)
